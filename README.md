@@ -1,0 +1,2 @@
+# testuchun
+bu proyekt haqida
